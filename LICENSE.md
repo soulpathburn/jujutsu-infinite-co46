@@ -1,4 +1,4 @@
-#  
+#  jujutsu infinite updated Scripts offers the most advanced jujutsu infinite Script, with teleport and auto-upgrade. Perfect for dominating any match.
 
 
 
